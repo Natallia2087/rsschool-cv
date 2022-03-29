@@ -21,6 +21,9 @@
 ##### CSS, HTML, Git video courses on YouTube channel
 ##### JavaScript https://learn.javascript.ru/
 
+## Work expetience:
+##### No work experience yet
+ 
 ## Languages:
 ##### Russian - native speaker
 ##### English - A2
