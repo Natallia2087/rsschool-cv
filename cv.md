@@ -3,7 +3,7 @@
 
 * #### Location: Vitebsk, Belarus
 * #### Phone: 375298965470
-* #### E-mail: 
+* #### E-mail: babarneva.natallia@gmail.com
 * #### GitHub: Natallia2087
 * #### Discord: Natallia#8631
 ## About myself:
